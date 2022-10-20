@@ -8,7 +8,7 @@ Vuele al aeropuerto Pablo Picasso de Málaga (lugar de nacimiento del artista). 
 
 ## Día 2: Granada, Nerja
 
-Granada es bien conocida por un lugar importante: la Alhambra. Asegúrate de conseguir las entradas con antelación. No estoy hablando de solo unos días antes, para asegurarse de que pueda ver todo lo que el palacio tiene para ofrecer, debe reservar con más anticipación. Puedes hacerlo aquí mismo. Sugiero conseguir el que incluye el Palacio Nazarí, ya que es la estructura más intrincada y hermosa del recinto. Cuando compres tu entrada tendrás una hora concreta para visitar los Palacios Nazaríes. Se agota todos los días y solo debes ir a la hora asignada.
+Granada es bien conocida por un lugar importante: la Alhambra. Asegúrate de conseguir las entradas con antelación. No estoy hablando de solo unos días antes, para asegurarse de que pueda ver todo lo que el palacio tiene para ofrecer, debe reservar con más anticipación. Puedes hacerlo aquí mismo. Sugiero conseguir el que incluye el Palacio Nazarí, ya que es la estructura más intrincada y hermosa del recinto. Cuando compres tu entrada tendrás una hora concreta para visitar los Palacios Nazaríes. 
 
 ## Día 3: Córdoba, Sevilla
 
